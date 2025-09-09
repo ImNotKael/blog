@@ -1,0 +1,1 @@
+Welcome to Kael's blog where he rants for nothing!
